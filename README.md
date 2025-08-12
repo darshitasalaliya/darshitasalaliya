@@ -19,7 +19,7 @@
 - 👨‍💻 All of my projects are available at
 [https://www.linkedin.com/in/darshit-asalaliya](https://www.linkedin.com/in/darshit-asalaliya)
 
-- 📫 How to reach me **asalaliyadarshit@gmail.com**
+- 📫 How to reach me **asalaliyadarshitj@gmail.com**
 
 - ⚡ Fun fact **I use tabs over spaces**
 
